@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning JavaScript (react)
 - 💞️ I’m looking to collaborate on website development 
 - 📫 Email➡️ Clintonjoyfimie@gmail.com
-- 📞 WhatsApp - +2349024221562 & Calls- +2348064418429 Twitter - Cjay_101
+- 📞 WhatsApp - +2349024221562 & Calls- +2348064418429 Twitter - Clintonjoy10
 
 
 
